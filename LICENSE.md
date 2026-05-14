@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with rare new coin sniper bot | bundle-transactions + MEV-detection, the #1 new coin sniper bot. Includes bundle-transactions and MEV-detection for a faster
 
 
 
